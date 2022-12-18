@@ -9,6 +9,5 @@
 ![](https://github-profile-trophy.vercel.app/?username=Rohitkumar2145&theme=onestar&no-frame=false&no-bg=false&margin-w=4)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=Rohitkumar2145&icon=9&color=1)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
